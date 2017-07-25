@@ -1,1 +1,1 @@
-25.07.2017 - http://maya-shop.ru/
+25.07.2017 - http://maya-shop.ru
